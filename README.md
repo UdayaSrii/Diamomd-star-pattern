@@ -1,0 +1,1 @@
+# Diamomd-star-pattern
